@@ -1,0 +1,2 @@
+# latihan-AJA
+SWDSWDEWFDE
